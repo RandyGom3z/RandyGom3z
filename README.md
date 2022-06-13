@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RandyGom3z. Founder,CEO & DAO contributor 
+- 👀 I’m interested in all things web3,education, community building and fun! 
+- 🌱 I’m currently learning DAO governance and coding. 
+- 💞️ I’m looking to collaborate on Web3 Onboarding. 
+- 📫 How to reach me @Randisima on TG/Discord and Twitter. 
